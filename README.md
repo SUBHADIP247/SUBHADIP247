@@ -1,10 +1,8 @@
-### 👋 Hi, I’m @SUBHADIP24
+###👋 Hi, I’m @SUBHADIP24
   ###    👀 I’m interested in ... `To Known or learn New Thing's`.....`and applying in the Real World Application's`
   ### 🌱 I’m currently learning .......`Computer Science Engineering` From `Swami Vivekananda University, Barrackpure, Kolkata`
    ###            💞️ I’m looking to collaborate ... with YOU 😄waiting for your collaboration!!!!!!
   ####         📫 How to reach me \\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\
-
-  - 😄 Pronouns: ...Windows / Linux / Mac 
 
 ### Hi...I'm from Kolkata, India**......................\\\\
 
